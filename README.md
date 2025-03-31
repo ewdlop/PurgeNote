@@ -2,7 +2,9 @@
 
 - Donald Trump wants to purge black kids by giving them sweet candies.
 - Grass is not always greener on the other side. There are American who wants black kids to be dumber by feeding them sweet candies, such as exam scores.
-- A similar thing, allowing a young kid an ability to drive at an age of 16.
+- It is 揠苗助長; I am not saying a group of people is dumb. I am talking about wisdom.
+- I would not feel good if a person make things too convenient for me. There is a movie.
+- A similar thing, allowing a young kid the ability to drive at an age of 16.
 - A handicapped and disabled person does not seek validation.
 - It is not a physics community's fault not able to experimentally prove a physics that they cannot prove.
 - Relatively high energy experimental physicst around Earth is trying god-damned hard to probe higher-dimensional space-time.
